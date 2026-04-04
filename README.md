@@ -5,3 +5,4 @@
 30 march mids 4th tomorrow pdc paper
 31 march mdis 5th tomorrow SDA paper
 1st April mids 6th tomorrow MAD paper
+4th April mids 8th tommorrow sunday than textile exam
