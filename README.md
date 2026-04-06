@@ -7,3 +7,4 @@
 1st April mids 6th tomorrow MAD paper
 4th April mids 9th tommorrow sunday than textile exam
 5th April mids 10th tomorrow Monday Textile exam
+6th April tomorrow 11th Off last exam tuesday QT 
