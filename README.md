@@ -9,3 +9,4 @@
 5th April mids 10th tomorrow Monday Textile exam
 6th April tomorrow 11th Off last exam tuesday QT 
 7th April Profile Setup todays
+8th April projexts added on upwork and fiver gig created verified
